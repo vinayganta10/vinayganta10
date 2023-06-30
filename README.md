@@ -1,5 +1,6 @@
 # 💫 About Me:
-I am currently studying in CVR college of engineering.<br>Think Smart😎.
+Hi,I am vinay ganta
+
 
 
 ## 🌐 Socials:
